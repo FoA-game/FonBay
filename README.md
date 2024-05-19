@@ -1,6 +1,6 @@
 # Fon-Bay
 
-## Stories
+## Story Fragments
 
 - [FB A - Borderlands](https://github.com/FoA-game/FonBay/blob/main/EP1/stories.md#fb-a---borderlands)
 - [FB B - Ship of Theseus](https://github.com/FoA-game/FonBay/blob/main/EP1/stories.md#fb-b---ship-of-theseus)

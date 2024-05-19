@@ -10,4 +10,4 @@
 
 ## Items
 
-[Items](https://github.com/FoA-game/FonBay/blob/main/EP1/items.md)
+- [Items](https://github.com/FoA-game/FonBay/blob/main/EP1/items.md)

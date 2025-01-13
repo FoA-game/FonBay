@@ -2,9 +2,9 @@
 
 Seventy-two years ago, souls yearning for freedom shattered the chains of the White Tower, embarking on a fearless venture to challenge Upper Nuovartica. These rebels hacked into data centers, hijacked nine cargo ships, and forcefully pierced through the blockade, their journey east culminating on the shores of the Fonsvia Islands, where they founded a city amidst desolation. Yet, this land was no paradise: the deadly Ceras aerosol looms like a shadow; threatening radiation lingers in the soil and the water.
 
-"Abilities permit all." This creed flows in the veins of every resident of Fon Bay. Here, the authority of governments ceases, the power of laws vanishes, and ethics and morality are redefined, leaving behind nothing but pure freedom and infinite possibilities. Innovative biological and medical experiments are conducted, and unrestrained body enhancements are pursued, shattering the boundaries between the physical and psychological realms time and again. The right to alter and enhance one's body and mind according to one's will is every individual’s right.
+"Abilities permit all." This creed flows in the veins of every resident of Fon Bay. Here, the authority of governments has ceased, the constraints of law have dissolved, and ethics and morality are ceaselessly redefined. Only unadulterated freedom takes root, thriving amidst limitless possibilities.
 
-Humanity is propelled to new heights on this land, both cursed and blessed. This struggle is not just for survival but a pursuit of bodily autonomy and an expansion of free will—how much freedom can one possess to decide what to do and what to become?
+In this land, both cursed and blessed, people have embraced large-scale biological and medical experimentation, fearlessly pushing the boundaries of self-modification. Each individual has the right to reshape and enhance their body and mind according to their own will. Freedom here is not merely a choice—it is a way of life, uncompromising and unyielding. And this struggle has long surpassed the scope of mere survival. It is a quest for bodily autonomy, an exploration of the limits of free will—how much freedom can a person truly possess? To choose what to do, to choose who to become?
 
 
 ## FB B - Ship of Theseus

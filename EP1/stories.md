@@ -43,8 +43,8 @@ Mission's a bust. If no other backups, looks like this is my 4th consciousness r
 
 Tragedies are everywhere. Some folks rewrite their memories, only to lose themselves in a world of lies and illusions; some modify their personalities, only to become complete monsters; and even those who split their consciousness into fragments, each growing wildly on its own, never to be back together again. Humanity has walked too far down this road, and the prophecy of “Cynatos” is coming true. The philosopher Lucien Leitner from the golden age warned us long ago: the so-called "Root Access" to consciousness can only lead to emptiness and destruction. And now, it seems he was absolutely right.
 
+We have to put an end to this. We need to rebuild order, whatever it takes. If that means taking down MedTech and Mirai Fon, then so be it. Fon Bay must connect to the global network and come under the jurisdiction of the White Tower. Otherwise, we will remain on the edge of destruction forever. And lately, I’ve been wondering—perhaps "The One" really is our last hope, the one thing that could bring us the chance to start over.
 
-We have to put an end to this. We need to rebuild order, whatever it takes. If that means taking down MedTech and Mirai Fon, then so be it. Fon Bay has to connect to the global network and fall under Upper Nuovartica’s control. That’s the only way to keep our research within safe limits. And you know, I’ve been thinking—maybe it’s time to figure out how to wake up "The One" and bring some kind of balance to this mess of a world.
 
 ## FB E - Metal Disco
 

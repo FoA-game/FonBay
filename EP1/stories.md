@@ -26,11 +26,9 @@ Given the patient's relatively common condition, Theseus Therapy with the instal
 
 ## FB C - Transhumanist Manifesto
 
-Fellow beings,
+Fellow beings, this is our moment! This is an unprecedented time! We have been granted the freedom and power to rewrite the destiny of humanity...
 
-This is an unprecedented moment when we are bestowed with the freedom and power to rewrite humankind's destiny.
-
-Through precise genetic editing, we have liberated ourselves from the shackles of natural selection, enabling us to shape our evolution autonomously — genetic diseases will become relics of the past, our physical capabilities will be enhanced beyond imagination, and we may even explore unknown sensory worlds. With the aid of advanced mechanical technology — be it titanium alloy skeletons, carbon fiber hydraulic muscles, or full-spectrum decoders, electromagnetic acceleration guns, we will move from basic ability improvements to complete bodily transformations. Via consciousness expansion, our consciousness merges with the digital world and coexists with artificial intelligence, we will overcome death, breaking free from the chains of material existence…
+Through genetic editing, we have broken free from the chains of natural selection—genetic diseases are now a thing of the past, and enhanced abilities have allowed us to surpass previously unimaginable limits. With advanced mechanization, from titanium alloy skeletons to carbon-fiber hydraulic muscles, we have transcended mere augmentation and entered the realm of complete physical transformation. But greater still is the power of cognitive expansion. When our consciousness merges with the digital realm and coexists with artificial intelligence, we will conquer death, transcending the shackles of the material world...
 
 Remember, we were never confined by our biological form. We are the offspring of technology, dwelling at the threshold of biological and non-biological. The fragile flesh is merely an evolutionary vestige, akin to the appendix, meant to be discarded by us…
 

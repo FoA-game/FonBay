@@ -39,11 +39,12 @@ Remember, we were never confined by our biological form. We are the offspring of
 
 Hey Ilan,
 
-Mission's a bust. If no other backups, looks like this is my 4th consciousness reset. Been thinking... the real Shuwang probably died six years ago, and now I'm just a copy of his memories and thoughts, carried by electronic components talking to you.
+Mission's a bust. If no other backups, looks like this is my 4th consciousness reset. Been thinking... the real Shuwang probably died six years ago, and what is talking to you now might just be an electronic component that inherited his memories and thoughts.
 
-Tragedies are everywhere. Some folks are trying to forget, messing with their memories, only to get lost in their own imagination and lies; others go too far in chasing change, tweaking their personalities until they turn into insane creatures; and then there are those splitting their consciousness into pieces, hoping to experience more, only to find they can't ever piece themselves back together again. As you said, it's "Cynatos" - Lucien Leitner, the great philosopher from the golden age, predicted it all. Getting the "root permission" of our own consciousness only leads to emptiness and destruction.
+Tragedies are everywhere. Some folks rewrite their memories, only to lose themselves in a world of lies and illusions; some modify their personalities, only to become complete monsters; and even those who split their consciousness into fragments, each growing wildly on its own, never to be back together again. Humanity has walked too far down this road, and the prophecy of “Cynatos” is coming true. The philosopher Lucien Leitner from the golden age warned us long ago: the so-called "Root Access" to consciousness can only lead to emptiness and destruction. And now, it seems he was absolutely right.
 
-These idiots are pushing humanity to the brink, and now I get it: Restoring order is way beyond just a few of us. You've heard, right? Upper Nuovartica's planning to set up a new hydroelectric plant and computing center - that's our chance. Once they've got enough power and computing resources, Fon Bay's gonna be connected to the global network. This place has gone too far, and no superintelligence is gonna ignore this kind of circus.
+
+We have to put an end to this. We need to rebuild order, whatever it takes. If that means taking down MedTech and Mirai Fon, then so be it. Fon Bay has to connect to the global network and fall under Upper Nuovartica’s control. That’s the only way to keep our research within safe limits. And you know, I’ve been thinking—maybe it’s time to figure out how to wake up "The One" and bring some kind of balance to this mess of a world.
 
 ## FB E - Metal Disco
 
@@ -52,3 +53,5 @@ Once upon a time, Asura and Six Hands rescued a girl from a hibernation pod. Her
 All of this would not have been possible without Mirai Fon—the leading cybernetic manufacturer in Fon Bay. This company endowed both the Silver Phantom and every individual with the freedom and power to defy their destinies. From functional enhancements like artificial nerves and exoskeletal frames to advanced military-grade equipment like high-temperature blades and high-energy particle emitters, Mirai Fon has made this empowering technology accessible to the masses.
 
 As a member of Fon Bay, you possess the right to arm yourself with any weapon, a liberty that also serves as a responsibility to protect your loved ones and yourself. Due to maladaptations to mechanized enhancements or mishandled consciousness expansions, episodes of cyberpsychosis rampage have occurred multiple times, with these deranged individuals potentially wielding extremely dangerous weapons capable of causing immense destruction in mere moments. In the face of these unhinged adversaries, the weaponry and equipment provided by Mirai Fon are your assured safeguards.
+
+In a world fraught with danger, only power can protect you.

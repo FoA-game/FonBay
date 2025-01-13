@@ -14,7 +14,7 @@ Case File Number: FB-204876-C
 Name: ■■■■■■■, Gender: Not applicable, Age: 23, Admission Date: A.R. 175, Day 226
 
 **Medical Summary:**
-The patient has undergone extensive genetic editing and mechanical transformation, with the majority of their skeletal, muscular, and nervous systems replaced by prosthetics. Only 22.4% of their bodily composition remains organic, including some internal organs and most brain tissue. Currently, the patient exhibits severe symptoms of depression and identity disorder, with no reported addiction to electrical stimuli.
+The patient has undergone extensive genetic editing and mechanical transformation, with the majority of their skeletal, muscular, and nervous systems replaced by prosthetics. Only 22.4% of their bodily composition remains organic, including some internal organs and most brain tissue. Currently, the patient exhibits severe depression and significant identity disorders, reporting an inability to "sense their true self."
 
 **Clinical Presentation:**
 - The patient shows emotional detachment and significant symptoms of depression, diagnosed as a neurotransmitter imbalance caused by the prosthetic transformation.

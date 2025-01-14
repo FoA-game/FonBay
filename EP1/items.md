@@ -4,9 +4,9 @@ Crafted from Carbotanium with a DC8 carbon-forged edge, it is lightweight, durab
 When folded, its length is less than 15 centimeters, fitting perfectly on a preteen's arm.
 
 ### FN 02 - Cultivated Human Skin
-Human skin cultivated from stem cell, consisting of the epidermis, dermis, and subcutaneous tissue. <br>
+Human skin cultivated from stem cells, consisting of the epidermis, dermis, and subcutaneous tissue. <br>
 Widely used in prosthetic modifications to cover mechanical components, maintaining a human-like appearance. <br>
-In Fon Bay, the demand for such applications is steadily declining
+In Fon Bay, the demand for such applications is steadily declining.
 
 ### FN 03 - Nanorobot Suspension
 This suspension, a blend of VT-Rescue IV nanorobots and saline, stands as the top-selling product from Mira Fon. <br>

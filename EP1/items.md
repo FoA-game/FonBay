@@ -25,7 +25,7 @@ Throughout the endless night, seven gunshots pierced the silence; as dawn descen
 
 ### FN 06 - Consciousness Expansion
 An invasive interface that embeds the chip and bus directly into the brain. <br>
-Unlike traditional brain-computer interfaces, an awareness can penetrate the barrier of the brain and freely flow outward. <br>
+Unlike traditional brain-computer interfaces, awareness can penetrate the barrier of the brain and freely flow outward. <br>
 Once lost in the sea of information, an individual's consciousness dissipates, vanishing like water into water.
 
 ### FN 07 - Ralay Motorcycle

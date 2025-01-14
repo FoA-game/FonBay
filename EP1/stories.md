@@ -46,7 +46,7 @@ Tragedies are everywhere. Some folks rewrite their memories, only to lose themse
 We have to put an end to this. We need to rebuild order, whatever it takes. If that means taking down MedTech and Mirai Fon, then so be it. Fon Bay must connect to the global network and come under the jurisdiction of the White Tower. Otherwise, we will remain on the edge of destruction forever. And lately, I’ve been wondering—perhaps "The One" really is our last hope, the one thing that could bring us the chance to start over.
 
 
-## FB E - Metal Disco
+## FB E - Armament Race
 
 Once upon a time, Asura and Six Hands rescued a girl from a hibernation pod. Her organs severely failed, and her nervous system was completely eroded. Without the intervention of mechanized technology, her story was destined to end tragically on a sickbed. Now, this once beleaguered girl has risen as the illustrious "Silver Phantom," a name that echoes far and wide.
 

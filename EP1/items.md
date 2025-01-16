@@ -37,7 +37,7 @@ Those familiar with motorcycles know well that the greatest air resistance comes
 ### FN 08 - Mechanical Hand
 The classic AXR-7 Titan Grip mechanical hand supports various attachments, from grappling hooks to blades and firearms. <br> 
 Powered by nuclear hydraulic joints, it offers formidable strength. Quantum tactile sensors and an intelligent assistance system ensure precise control. <br>
-Whether tearing through steel or delicately carving a rose onto the tip of a needle, it performs flawlessly.
+Whether tearing through steel or carving a rose onto the tip of a needle, it performs flawlessly.
 
 ### FN 09 - Consciousness Fuser
 A precision electronic instrument capable of merging the consciousness of two digital brains into one. <br> 

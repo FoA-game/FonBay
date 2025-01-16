@@ -31,7 +31,8 @@ Once lost in the sea of information, an individual's consciousness dissipates, v
 ### FN 07 - Ralay Motorcycle
 With its streamlined appearance and wide rear tires, it has become the ultimate dream ride for speed enthusiasts. <br>
 To mount it, one must extract the central nervous system, along with the head and spine, and transplant them into the front of the bike, connecting directly with its control system. <br>
-Those familiar with motorcycles know well that the greatest air resistance comes from the riders themselves.
+Those familiar with motorcycles know well that the greatest air resistance comes from the body of the rider.
+
 
 ### FN 08 - Mechanical Hand
 The classic AXR-7 Titan Grip mechanical hand supports various attachments, from grappling hooks to blades and firearms. <br> 

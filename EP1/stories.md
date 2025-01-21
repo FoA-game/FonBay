@@ -31,13 +31,15 @@ During the treatment period, it is advised to restrict the patient's built-in we
 
 ## FB C - Transhumanist Manifesto
 
-Fellow beings, this is our moment! This is an unprecedented time! We have been granted the freedom and power to rewrite the destiny of humanity...
+"Listen up, folks, our flesh-and-blood bodies? They're outdated. You all know what it's like to feel the limits of your own body—the pain, the sickness, the roads you can't run, the weights you can't lift, the things you forget, the questions you can't answer. But let me tell you this: you can do so much more now."
 
-Through genetic editing, we have broken free from the chains of natural selection—genetic diseases are now a thing of the past, and enhanced abilities have allowed us to surpass previously unimaginable limits. With advanced mechanization, from titanium alloy skeletons to carbon-fiber hydraulic muscles, we have transcended mere augmentation and entered the realm of complete physical transformation. But greater still is the power of cognitive expansion. When our consciousness merges with the digital realm and coexists with artificial intelligence, we will conquer death, transcending the shackles of the material world...
+"Some people say, ‘This stuff is dangerous.’ Of course, it’s dangerous! Name one thing in this world that isn’t. From the moment you’re born, danger’s your shadow. The real question is: are you willing to trade a little danger for freedom? Are you ready to give up that weak, fragile shell you’re stuck in and step into a version of yourself that never stops upgrading?"
 
-Remember, we were never confined by our biological form. We are the offspring of technology, dwelling at the threshold of biological and non-biological. The fragile flesh is merely an evolutionary vestige, akin to the appendix, meant to be discarded by us…
+"This is Fon Bay. Danger is the air we breathe. You scared of mental breakdowns? Ceras aerosols? Let me tell you, those things are just filters—they weed out the weak. And we? We’re not weak. Look around you, at the people on the streets. See those mechanical hands, those bionic eyes, those enhanced nerves and brains? Don’t be afraid of them. They’re the reason we’re faster, stronger, smarter."
 
-…Humanity is on the verge of becoming a new species. This is not merely an evolution; it is a complete transformation… Let technology liberate us, allowing us to become the masters of our own fates. Towards the future, towards transcendence, towards H+!
+"I know some of you cling to the past, to this idea of ‘nature.’ But what is nature, really? Nature is what starves you, what sickens you, what ages you to death. Do you want to let nature win? Or do you want to use the power you’ve built with your own hands to break free from its chains?"
+
+"So choose, brothers and sisters: stay trapped in the body and the past, or take that step forward and claim your freedom. Choose evolution. Choose H+. The future is out there. The only question is: do you have the guts to reach for it?"
 
 
 ## FB D - Access Permission

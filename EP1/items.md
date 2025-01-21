@@ -20,8 +20,9 @@ Its price is above the average person can easily afford.
 
 ### FN 05 - Consciousness Fragment
 The violently shattered core of consciousness, tainted with dried blue circulatory fluid. <br>
-An artist once divided his consciousness and memories into eleven parts, allowing them to live independently for a year. When the year ended, some fragments chose to reject reunification. <br>
-Throughout the endless night, seven gunshots pierced the silence; as dawn descended, the artist left alone, pushing the door open to depart.
+An artist once divided his consciousness and memories into eleven parts, allowing them to live independently for a year. When the year ended, some fragments rejected reunification.
+Through the long night, seven gunshots pierced the silence; at the break of dawn, the artist pushed the door open to depart alone.
+
 
 ### FN 06 - Consciousness Expansion
 An invasive interface that embeds the chip and bus directly into the brain. <br>

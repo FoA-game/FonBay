@@ -1,10 +1,11 @@
 ## FB A - Borderlands
 
-Seventy-two years ago, souls yearning for freedom shattered the chains of the White Tower, embarking on a fearless venture to challenge Upper Nuovartica. These rebels hacked into data centers, hijacked nine cargo ships, and forcefully pierced through the blockade, their journey east culminating on the shores of the Fonsvia Islands, where they founded a city amidst desolation. Yet, this land was no paradise: the deadly Ceras aerosol looms like a shadow; threatening radiation lingers in the soil and the water.
+Seventy-two years ago, souls yearning for freedom shattered the chains of the White Tower and launched a daring rebellion against Upper Nuovartica. They infiltrated data centers, hijacked nine cargo ships, and breached the blockade, charting an eastern course that ultimately stranded them on the desolate shores of the Fonsvia Islands. There, they built a new city. Yet this land was no utopia: the deadly Ceras aerosol looms like a shadow; threatening radiation lingers in the soil and the water.
 
-"Abilities permit all." This creed flows in the veins of every resident of Fon Bay. Here, the authority of governments has ceased, the constraints of law have dissolved, and ethics and morality are ceaselessly redefined. Only unadulterated freedom takes root, thriving amidst limitless possibilities.
+"Abilities permit all." This creed flows in the veins of every resident of Fon Bay. Here, the authority of governments has ceased, the constraints of law have dissolved, and ethics and morality are ceaselessly redefined. Only unadulterated freedom takes root.
 
-In this land, both cursed and blessed, people have embraced large-scale biological and medical experimentation, fearlessly pushing the boundaries of self-modification. Each individual has the right to reshape and enhance their body and mind according to their own will. Freedom here is not merely a choice—it is a way of life, uncompromising and unyielding. And this struggle has long surpassed the scope of mere survival. It is a quest for bodily autonomy, an exploration of the limits of free will—how much freedom can a person truly possess? To choose what to do, to choose who to become?
+In Fon Bay, the body is not a prison for the soul but a medium for self-expression. Bold experiments in biology and medicine unfold with abandon, pushing the boundaries of the human form. Bodies and minds are developed, enhanced, and transcended. Every individual has the right to shape and augment themselves as they see fit. Freedom here is not merely a choice; it is a way of life, uncompromising and unyielding. And this struggle extends far beyond survival—it is a pursuit of bodily autonomy and the expansion of free will. What kind of freedom can a person truly claim? What do we choose to become, and what kind of future will we create?
+
 
 
 ## FB B - Ship of Theseus
